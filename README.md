@@ -6,3 +6,27 @@
 
 (ill work on this at some point gng 🥹)
 
+" i need you so bad i need your kinky love, kinky youre all that ive been thinking of " kinky love, pale saints
+
+helllllooo!!! my name is soap, i also go by sammy and roman <3 ( ◜‿◝ )♡
+
+bisexual / genderfluid(￣ε(#￣)
+
+bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list and im sure you dont need to know <3
+
+((dont be scared to come chat or sit with me on pt unless my name says otherwise im always in the mood for conversation!!))
+
+i am a proshipper, no not what youre thinking, im anti harassment and i just have to much other things in life that are more important then to care what a person ships, and no i dont support map/pedophilia.
+im also a
+lightshipper & yumeshipper/selfshipper
+I FUCKING LOVE MY WIVES AND HUSBANDS <3
+
+i recommend checking out my straw for more info abt me!! dont be afraid to leave a note in my ata or dm me on discord!! <3
+
+yumes (灬º‿º灬)♡
+- bob velseb
+- strade (ykmet/btd)
+- josh levy
+- val (outlast 2)
+- celia (tpof)
+i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.
