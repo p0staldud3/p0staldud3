@@ -16,8 +16,9 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 
 ((dont be scared to come chat or sit with me on pt unless my name says otherwise im always in the mood for conversation!!))
 
-i am a proshipper, no not what youre thinking, im anti harassment and i just have to much other things in life that are more important then to care what a person ships, and no i dont support map/pedophilia.
-im also a
+i am a proshipper, no not what youre thinking, im anti harassment and i just have to much other things in life that are more important then to care what a person ships.
+
+
 lightshipper & yumeshipper/selfshipper
 I FUCKING LOVE MY WIVES AND HUSBANDS <3
 
