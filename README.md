@@ -4,9 +4,12 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
-(ill work on this at some point gng 🥹)
+(ill work on this at some point gng its still a wip🥹)
 
-" i need you so bad i need your kinky love, kinky youre all that ive been thinking of " kinky love, pale saints
+           
+  𓊈 " i need you so bad i need your kinky love, kinky youre all that ive been thinking of " kinky love, pale saints 𓊉  
+
+
 
 helllllooo!!! my name is soap, i also go by sammy and roman <3 ( ◜‿◝ )♡
 
