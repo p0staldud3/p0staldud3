@@ -11,7 +11,7 @@
 
 
 
-helllllooo!!! my name is soap, i also go by sammy and roman <3 ( ◜‿◝ )♡
+helllllooo!!! my name is soap, i also go by sammy and roman <3 ( ◜‿◝ )♡.  i am single and not looking atm <3
 
 bisexual / genderfluid(￣ε(#￣)
 
@@ -33,4 +33,5 @@ yumes (灬º‿º灬)♡
 - josh levy
 - val (outlast 2)
 - celia (tpof)
+
 i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.
