@@ -16,14 +16,13 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 
 ((dont be scared to come chat or sit with me on pt unless my name says otherwise im always in the mood for conversation!!))
 
-i am a proshipper, no not what youre thinking, im anti harassment and i just have to much other things in life that are more important then to care what a person ships.
-(read my abt me below this for a detailed kinda thing idk)
-
-
 lightshipper & yumeshipper/selfshipper
 I FUCKING LOVE MY WIVES AND HUSBANDS <3
 
 i recommend checking out my straw for more info abt me!! dont be afraid to leave a note in my ata or dm me on discord!! <3
+
+https://moreabtsoapy.straw.page/
+
 
 yumes (灬º‿º灬)♡
 - bob velseb
