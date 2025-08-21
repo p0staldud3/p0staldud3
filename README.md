@@ -7,7 +7,7 @@
 (ill work on this at some point gng its still a wip🥹)
 
            
-  𓊈 " i need you so bad i need your kinky love, kinky youre all that ive been thinking of " kinky love, pale saints 𓊉  
+  𓊈 " i dont care if it hurts, i want a perfect body, i want a perfect soul. i want you to notice, when im not around "  𓊉  
 
 
 
