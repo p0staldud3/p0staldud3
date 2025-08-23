@@ -29,7 +29,7 @@ https://moreabtsoapy.straw.page/
 yumes (灬º‿º灬)♡
 - bob velseb ( my first true love/silly)
 - strade (ykmet/btd) 
-- josh levy
+- josh levy (eltingvile)
 - val (outlast 2)
 - celia (tpof)
 - eddie gluskin (outlast 1 whistleblower dlc)
