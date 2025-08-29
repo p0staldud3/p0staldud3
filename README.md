@@ -8,7 +8,7 @@
 
 
 
-***helllllooo!!! my name is soap, i also go by sammy and roman <3 ( ◜‿◝ )♡.***
+***helllllooo!!! my name is soap, i also go by sammy and roman <3 (ps you can also call me postal if u wana... heh) ( ◜‿◝ )♡.***
 
 bisexual / genderfluid(￣ε(#￣)
 
