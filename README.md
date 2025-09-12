@@ -10,7 +10,7 @@
 
 ***helllllooo!!! my name is soap, i also go by sammy and roman <3 (ps you can also call me postal if u wana... heh) ( ◜‿◝ )♡.***
 
-bisexual / genderfluid(￣ε(#￣).         i luv my fact got husban/p
+bisexual / genderfluid(￣ε(#￣).         i luv my fact got/p & my husband @DaddyBlitzy
 
 bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list and im sure you dont need to know <3
 
