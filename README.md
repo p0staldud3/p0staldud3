@@ -12,7 +12,9 @@
 ***helllllooo!!! my name is soap, i also go by sammy and roman <3 (ps you can also call me postal if u wana... heh) ( ◜‿◝ )♡.***
 
 bisexual / genderfluid(￣ε(#￣).    
-MY HUSBAND @ThePluralEcosystem 
+MY HUSBAND @ThePluralEcosystem spins him around and squeezes him till he pops
+
+
 
 bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list and im sure you dont need to know <3
 
@@ -38,17 +40,28 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 - celia (tpof)
 - eddie gluskin (outlast 1 whistleblower dlc)
 
+**Fictkins/Comfs (^_^)**
+- murdoc (gorillaz)
+- jacob alden (lurking for love)
+- Lee Holloway (secretary)
+- postal (if not obv)
+(still wip/ some id like to remain unlisted)
 
 
 **i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.**
 
+**with fictkins just be decent and caustious! i may fictshift and honestly just be a jerk if someone talks shit bout my kins.**
+
 ****little dni/info?(more can be found on the strawpage above) people coming to harass me (ex friends or people veiwing who i sit by)****
  - **i am not a proshipper** in the way you think! i am simply just anti harassment i dont ship any illegal ships i have an outdated but still pretty good explenation in my abt me below this!!)
  - **dni if you are friends of ex friends** unless your civil abt ts 💔 i genuinely dont want you guys coming at me because almost none of you know my story to be sending me threats pls !! ^_^ adding onto this a bit!
- - this situation w me is over. i will no longer partake in trying to defend myself or apolagize any more than i already did to them. likewise to my beloveds statement but they had caused some serious menral shit, when i say serious i mean i almsot went to a psyc ward due to how ill i became. So yes im over this situation now but i wont just let my sweetheart get villanized over their opinions. I do want to address that neither me, Elliot, nor any of our friends sent or are sending harassment on ANYONES sites, their is someone going around pretending to be alot of us. we are trying to move on with our lives and me, my love, and our friends wish the best for you too and we need to drop this, if anyone wants to talk it out with me ill have my discord, reddit and pin users below.
-
+ - this situation w me is over. i will no longer partake in trying to defend myself or apolagize any more than i already did to them So yes im over this situation now but i wont just let my sweetheart get villanized over their opinions. I do want to address that neither me, Elliot, nor any of our friends sent or are sending harassment on ANYONES sites, their is someone going around pretending to be alot of us. we are trying to move on with our lives and me, my love, and our friends wish the best for you too and we need to drop this, if anyone wants to talk it out with me ill have my discord, reddit and pin users below.
+ - **my "dni"** - thought i may be a proshipper aka anti harassment i dont condone loli/other pedophilic ships, yet i will never harass anyone but just be causious because that stuff easily makes me upset/icked out , same with certain ships. Do not try and force me to like your ships i will get upset easily if you try to make me like a ship im clearly uncomfy with.
+please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious. if you KNOW my triggers please for the love of god dont push my buttons for the giggles its actually just so draining to see how much that happens. 
 
 anyways sorry for the wall of text here lovelys!! i hope you all are having a wonderful day!! <3
+
+drop a song rec on my ata!! im planning to make a pt playlist with all the songs given to me <3
 
 
 SOCIALS (no harassment !! )
