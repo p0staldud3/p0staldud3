@@ -9,7 +9,7 @@
 
 
 
-***helllllooo!!! my name is soap, i also go by sam, roman, & murdoc <3 (ps you can also call me postal if u wana... heh) ( ◜‿◝ )♡.***
+***helllllooo!!! my name is soap, i also go by roman, & murdoc <3 (ps you can also call me postal if u wana... heh) ( ◜‿◝ )♡.***
 
 bisexual / genderfluid(￣ε(#￣).    
 MY HUSBAND @ThePluralEcosystem spins him around and squeezes him till he pops
