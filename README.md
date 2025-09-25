@@ -45,6 +45,7 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 - jacob alden (lurking for love)
 - Lee Holloway (secretary)
 - postal (if not obv)
+- jade (homestuck)
 (still wip/ some id like to remain unlisted)
 
 
