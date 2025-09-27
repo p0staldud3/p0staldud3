@@ -7,7 +7,7 @@
 
 *(ill work on this at some point gng its still a wip🥹)*
 
-
+https://murd0cnc4las.straw.page/
 
 ***helllllooo!!! my name is soap, i also go by roman, & murdoc <3 (ps you can also call me postal if u wana... heh) ( ◜‿◝ )♡.***
 
