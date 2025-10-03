@@ -46,6 +46,7 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 - Lee Holloway (secretary)
 - postal (if not obv)
 - jade (homestuck)
+- leano (beastars)
 (still wip/ some id like to remain unlisted)
 
 
