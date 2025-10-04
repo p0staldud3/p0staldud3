@@ -39,6 +39,7 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 - val (outlast 2)
 - celia (tpof)
 - eddie gluskin (outlast 1 whistleblower dlc)
+- selfinsertmurdocxmybf/2D
 
 **Fictkins/Comfs (^_^)**
 - murdoc (gorillaz)
