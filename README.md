@@ -9,10 +9,11 @@
 
 https://murd0cnc4las.straw.page/
 
-***helllllooo!!! my name is soap, i also go by roman, & murdoc <3 (ps you can also call me postal if u wana... heh) ( ◜‿◝ )♡.***
+***helllllooo!!!***
+**my name is soap, i also go by roman, & murdoc <3 ( ◜‿◝ )♡.**
 
-bisexual / genderfluid(￣ε(#￣).    
-MY HUSBAND @ThePluralEcosystem spins him around and squeezes him till he pops
+bisexual / genderfluid.  
+MY HUSBAND @ThePluralEcosystem spins him around and squeezes him till he pops.
 
 
 
@@ -56,11 +57,11 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 **with fictkins just be decent and caustious! i may fictshift and honestly just be a jerk if someone talks shit bout my kins.**
 
 ****little dni/info?(more can be found on the strawpage above) people coming to harass me (ex friends or people veiwing who i sit by)****
- - **i am not a proshipper** in the way you think! i am simply just anti harassment i dont ship any illegal ships i have an outdated but still pretty good explenation in my abt me below this!!)
- - **dni if you are friends of ex friends** unless your civil abt ts 💔 i genuinely dont want you guys coming at me because almost none of you know my story to be sending me threats pls !! ^_^ adding onto this a bit!
- - this situation w me is over. i will no longer partake in trying to defend myself or apolagize any more than i already did to them So yes im over this situation now but i wont just let my sweetheart get villanized over their opinions. I do want to address that neither me, Elliot, nor any of our friends sent or are sending harassment on ANYONES sites, their is someone going around pretending to be alot of us. we are trying to move on with our lives and me, my love, and our friends wish the best for you too and we need to drop this, if anyone wants to talk it out with me ill have my discord, reddit and pin users below.
+ - **i am not a proshipper** in the way you think! i am simply just anti harassment i dont ship any illegal ships i have an outdated but still pretty good explenation in my abt me below this!!) 
+ - **dni if you are friends of ex friends** unless your civil abt ts 💔 i genuinely dont want you guys coming at me because almost none of you know my story to be sending me threats pls
  - **my "dni"** - thought i may be a proshipper aka anti harassment i dont condone loli/other pedophilic ships, yet i will never harass anyone but just be causious because that stuff easily makes me upset/icked out , same with certain ships. Do not try and force me to like your ships i will get upset easily if you try to make me like a ship im clearly uncomfy with.
-please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious. if you KNOW my triggers please for the love of god dont push my buttons for the giggles its actually just so draining to see how much that happens. 
+please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious. if you KNOW my triggers please for the love of god dont push my buttons for the giggles its actually just so draining to see how much that happens.
+ - **whoever is going around on pt saying im 14 and giving my socials out for ppl to harass**
 
 anyways sorry for the wall of text here lovelys!! i hope you all are having a wonderful day!! <3
 
