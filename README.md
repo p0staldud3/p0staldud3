@@ -38,7 +38,8 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 - strade (ykmet/btd) 
 - josh levy (eltingvile)
 - val (outlast 2)
-- celia (tpof)
+- The pale man (NIANH) 
+-  celia (tpof)
 - eddie gluskin (outlast 1 whistleblower dlc)
 - selfinsertmurdocxmybf/2D
 
@@ -50,6 +51,7 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 - jade (homestuck)
 - leano (beastars)
 (still wip/ some id like to remain unlisted)
+
 
 
 **i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.**
