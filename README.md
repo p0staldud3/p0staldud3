@@ -38,11 +38,10 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 - strade (ykmet/btd) 
 - josh levy (eltingvile)
 - val (outlast 2)
-- The pale man (NIANH) 
+- The pale man/intruder (NIANH) 
 -  celia (tpof)
 - eddie gluskin (outlast 1 whistleblower dlc)
 - selfinsertmurdocxmybf/2D
-- the intruder (ninah)
 - seductive woman (ninah)
 
 **Fictkins/Comfs (^_^)**
