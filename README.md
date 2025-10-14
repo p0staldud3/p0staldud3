@@ -42,6 +42,8 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 -  celia (tpof)
 - eddie gluskin (outlast 1 whistleblower dlc)
 - selfinsertmurdocxmybf/2D
+- the intruder (ninah)
+- seductive woman (ninah)
 
 **Fictkins/Comfs (^_^)**
 - murdoc (gorillaz)
