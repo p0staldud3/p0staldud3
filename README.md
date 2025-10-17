@@ -22,7 +22,8 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 
 *((dont be scared to come chat or sit with me on pt unless my name says otherwise im almost always in the mood for conversation!!))*
 
-***lightshipper*** & ***yumeshipper/selfshipper***
+***lightshipper*** & 
+***yumeshipper/selfshipper***
 *I FUCKING LOVE MY WIVES AND HUSBANDS <3*
 
 
@@ -52,6 +53,8 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 - jade (homestuck)
 - leano (beastars)
 (still wip/ some id like to remain unlisted)
+![image](https://github.com/user-attachments/assets/0d9958b1-f490-4ab1-837b-57d9ed326777)
+
 
 
 
