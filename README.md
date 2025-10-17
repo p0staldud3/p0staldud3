@@ -4,8 +4,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
+<img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/12c8dcc9-b538-4e41-80d0-131f47c95053" />
 
-*(ill work on this at some point gng its still a wip🥹)*
 
 https://murd0cnc4las.straw.page/
 
@@ -13,7 +13,8 @@ https://murd0cnc4las.straw.page/
 **my name is soap, i also go by roman, & murdoc <3 ( ◜‿◝ )♡.**
 
 bisexual / genderfluid.  
-MY HUSBAND @ThePluralEcosystem spins him around and squeezes him till he pops.
+MY HUSBAND @ThePluralEcosystem spins him around and squeezes him till he pops.![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)
+
 
 
 
@@ -31,6 +32,10 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 ****i recommend checking out my straw for more info abt me!! dont be afraid to leave a note in my ata or dm me on discord!! <3****
 
 *https://moreabtsoapy.straw.page/*
+
+![image](https://github.com/user-attachments/assets/56beee04-d4df-476e-ae48-6dc4f7f737a0) ![image](https://github.com/user-attachments/assets/55323953-6fc4-4474-8194-32007eb491b3) *(more to add)*
+
+
 
 
 
@@ -61,6 +66,9 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 **i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.**
 
 **with fictkins just be decent and caustious! i may fictshift and honestly just be a jerk if someone talks shit bout my kins.**
+
+![image](https://github.com/user-attachments/assets/ecffeebc-c0eb-40c2-b718-41eebf1a26ce)
+
 
 ****little dni/info?(more can be found on the strawpage above) people coming to harass me (ex friends or people veiwing who i sit by)****
  - **i am not a proshipper** in the way you think! i am simply just anti harassment i dont ship any illegal ships i have an outdated but still pretty good explenation in my abt me below this!!) 
