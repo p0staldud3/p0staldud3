@@ -47,6 +47,7 @@ bisexual / genderfluid
  *(more to add)*
 
 
+![image](https://github.com/user-attachments/assets/3987ce0f-8ddf-4b8d-97bb-5f7b950c6038)
 
 
 
