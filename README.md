@@ -12,19 +12,18 @@
 
 https://murd0cnc4las.straw.page/
 
-***helllllooo!!!***
-**my name is soap, i also go by roman, & murdoc <3 ( ◜‿◝ )♡.**
-
-bisexual / genderfluid.  
-MY HUSBAND @ThePluralEcosystem spins him around and squeezes him till he pops.![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)
+　　　　　𓎢𓎡　　　***soap***　　☣︎　           　
+     :*roman*   / 
+     *murdoc*   ᛝ
 
 
+bisexual / genderfluid 
+◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧         **my husband** : *@ThePluralEcosystem*        ๑    .࿔ ✈︎  
+         𓂃
+         ﹑*ENFP*  ౨ৎ
+　   ⤿﹒bpd. did. npd/nspd ◡◡
+　     schizophrenia. add + others im sure you dont need to know lmao
 
-
-bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list and im sure you dont need to know <3
-
-
-*((dont be scared to come chat or sit with me on pt unless my name says otherwise im almost always in the mood for conversation!!))*
 
 ***lightshipper*** & 
 ***yumeshipper/selfshipper***
