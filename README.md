@@ -4,6 +4,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
+![image](https://github.com/user-attachments/assets/922e0f35-22fb-4d6c-8bb4-ca95cb89d341)
+
+
 <img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/12c8dcc9-b538-4e41-80d0-131f47c95053" />
 
 
@@ -70,16 +73,12 @@ bpd , did , npd/nspd , schizophrenia , add + other things im too lazy to list an
 ![image](https://github.com/user-attachments/assets/ecffeebc-c0eb-40c2-b718-41eebf1a26ce)
 
 
-****little dni/info?(more can be found on the strawpage above) people coming to harass me (ex friends or people veiwing who i sit by)****
- - **i am not a proshipper** in the way you think! i am simply just anti harassment i dont ship any illegal ships i have an outdated but still pretty good explenation in my abt me below this!!) 
- - **dni if you are friends of ex friends** unless your civil abt ts 💔 i genuinely dont want you guys coming at me because almost none of you know my story to be sending me threats pls
- - **my "dni"** - thought i may be a proshipper aka anti harassment i dont condone loli/other pedophilic ships, yet i will never harass anyone but just be causious because that stuff easily makes me upset/icked out , same with certain ships. Do not try and force me to like your ships i will get upset easily if you try to make me like a ship im clearly uncomfy with.
-please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious. if you KNOW my triggers please for the love of god dont push my buttons for the giggles its actually just so draining to see how much that happens.
- - **whoever is going around on pt saying im 14 and giving my socials out for ppl to harass**
-
+-
 anyways sorry for the wall of text here lovelys!! i hope you all are having a wonderful day!! <3
 
-drop a song rec on my ata!! im planning to make a pt playlist with all the songs given to me <3
+but wait...
+...are you alone?
+![image](https://github.com/user-attachments/assets/8ba22ac3-b869-4c7e-aee8-3ef3f40fcfdb)
 
 
 SOCIALS (no harassment !! )
@@ -87,3 +86,14 @@ SOCIALS (no harassment !! )
 **R: u/_s0ap3
 D: p0stal.dud3
 P: s0ap3_** 
+
+![image](https://github.com/user-attachments/assets/ecffeebc-c0eb-40c2-b718-41eebf1a26ce)
+
+
+⚠️DNI BELOW!! (wall of text again im so sorry 💔)
+
+****little dni/info?(more can be found on the strawpage above) people coming to harass me (ex friends or people veiwing who i sit by)****
+ - **i am not a proshipper** in the way you think! i am simply just anti harassment i dont ship any illegal ships i have an outdated but still pretty good explenation in my abt me below this!!) 
+ - **dni if you are friends of ex friends** unless your civil abt ts 💔 i genuinely dont want you guys coming at me because almost none of you know my story to be sending me threats pls
+ - **my "dni"** - thought i may be a proshipper aka anti harassment i dont condone loli/other pedophilic ships, yet i will never harass anyone but just be causious because that stuff easily makes me upset/icked out , same with certain ships. Do not try and force me to like your ships i will get upset easily if you try to make me like a ship im clearly uncomfy with.
+please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious. if you KNOW my triggers please for the love of god dont push my buttons for the giggles its actually just so draining to see how much that happens.
