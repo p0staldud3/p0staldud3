@@ -52,7 +52,7 @@ bisexual / genderfluid
 **yumes (灬º‿º灬)♡**
 - bob velseb ( my first true love/silly)
 - strade (ykmet/btd) 
-- josh levy (eltingvile)
+- josh levy (eltingville)
 - val (outlast 2)
 - The pale man/intruder (NIANH) 
 -  celia (tpof)
@@ -73,7 +73,7 @@ bisexual / genderfluid
 
 
 
-**current hyperfixation:** no im not a human, gorillaz, eltingvile, and haunted hotel!!
+**current hyperfixation:** no im not a human, gorillaz, the eltingville club, and haunted hotel!!
 
 ![image](https://github.com/user-attachments/assets/58eb5bc1-f082-4f84-bdfb-38804926736c)
 
