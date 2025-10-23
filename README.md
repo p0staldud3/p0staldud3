@@ -43,9 +43,7 @@ bisexual / genderfluid
 
 
 
-
  *(more to add)*
-
 
 
 
@@ -70,13 +68,16 @@ bisexual / genderfluid
 - leano (beastars)
 (still wip/ some id like to remain unlisted)
 ![image](https://github.com/user-attachments/assets/0d9958b1-f490-4ab1-837b-57d9ed326777)
-
-
-
-
 **i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.**
 
-**with fictkins just be decent and caustious! i may fictshift and honestly just be a jerk if someone talks shit bout my kins.**
+
+
+**current hyperfixation:** no im not a human, gorillaz, eltingvile, and haunted hotel!!
+
+![image](https://github.com/user-attachments/assets/58eb5bc1-f082-4f84-bdfb-38804926736c)
+
+
+
 
 ![image](https://github.com/user-attachments/assets/ecffeebc-c0eb-40c2-b718-41eebf1a26ce)
 
@@ -98,7 +99,9 @@ P: s0ap3_**
 ![image](https://github.com/user-attachments/assets/ecffeebc-c0eb-40c2-b718-41eebf1a26ce)
 
 
-⚠️DNI BELOW!! (wall of text again im so sorry 💔)
+⚠️DNI BELOW!! 
+
+ (wall of text again im so sorry 💔)
 
 ****little dni/info?(more can be found on the strawpage above) people coming to harass me (ex friends or people veiwing who i sit by)****
  - **i am not a proshipper** in the way you think! i am simply just anti harassment i dont ship any illegal ships i have an outdated but still pretty good explenation in my abt me below this!!) 
