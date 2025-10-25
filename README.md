@@ -62,6 +62,7 @@ bisexual / genderfluid
 
 **Fictkins/Comfs (^_^)**
 - murdoc (gorillaz)
+- hizashi/ presentmic (mha)
 - jacob alden (lurking for love)
 - Lee Holloway (secretary)
 - postal (if not obv)
