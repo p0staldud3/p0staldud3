@@ -4,7 +4,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![image](https://github.com/user-attachments/assets/922e0f35-22fb-4d6c-8bb4-ca95cb89d341)
+![image](https://github.com/user-attachments/assets/b58f9752-8c8b-459d-87aa-a54154ac3563)
+
 
 
 <img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/12c8dcc9-b538-4e41-80d0-131f47c95053" />
@@ -60,7 +61,12 @@ bisexual / genderfluid
 - selfinsertmurdocxmybf/2D
 - seductive woman (ninah)
 
-**Fictkins/Comfs (^_^)**
+**Fictkins/Comfs (^_^)** <img width="110" height="63" alt="image" src="https://github.com/user-attachments/assets/b29bc976-97ed-4316-bd00-b854536cf01f" />
+
+
+
+
+
 - murdoc (gorillaz)
 - hizashi/ presentmic (mha)
 - jacob alden (lurking for love)
