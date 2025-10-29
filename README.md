@@ -80,7 +80,7 @@ bisexual / genderfluid
 
 
 
-**current hyperfixation:** no im not a human, gorillaz, the eltingville club, and haunted hotel!!
+**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel and mha
 
 ![image](https://github.com/user-attachments/assets/58eb5bc1-f082-4f84-bdfb-38804926736c)
 
