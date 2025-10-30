@@ -20,7 +20,7 @@ https://murd0cnc4las.straw.page/
 bisexual / genderfluid 
 ◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧         
 
-**my husband** : <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9f74cae0-a589-461e-90e9-02e2e5456bba" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a84779a9-8c77-465a-86aa-07f8a5578183" />*@ThePluralEcosystem*        ๑    .࿔ ✈︎  
+**my fp** : <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9f74cae0-a589-461e-90e9-02e2e5456bba" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a84779a9-8c77-465a-86aa-07f8a5578183" />        ๑    .࿔ ✈︎  
          𓂃
          ﹑*ENFP*  ౨ৎ
 　   ⤿﹒bpd. did. npd/nspd ◡◡
@@ -58,7 +58,6 @@ bisexual / genderfluid
 - The pale man/intruder (NIANH) 
 -  celia (tpof)
 - eddie gluskin (outlast 1 whistleblower dlc)
-- selfinsertmurdocxmybf/2D
 - seductive woman (ninah)
 
 **Fictkins/Comfs (^_^)** <img width="110" height="63" alt="image" src="https://github.com/user-attachments/assets/b29bc976-97ed-4316-bd00-b854536cf01f" />
