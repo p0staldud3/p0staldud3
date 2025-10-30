@@ -13,11 +13,11 @@
 
 https://murd0cnc4las.straw.page/
 　　𓎢𓎡　　　***soap***　　☣︎　           　
-     :*roman*   / 
+     :*rowan*   / 
      *murdoc*   ᛝ
 
 
-bisexual / genderfluid 
+bisexual / genderfluid / aroace
 ◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧         
 
 **my fp** : <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9f74cae0-a589-461e-90e9-02e2e5456bba" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a84779a9-8c77-465a-86aa-07f8a5578183" />        ๑    .࿔ ✈︎  
@@ -59,6 +59,7 @@ bisexual / genderfluid
 -  celia (tpof)
 - eddie gluskin (outlast 1 whistleblower dlc)
 - seductive woman (ninah)
+- aizawa (mha)
 
 **Fictkins/Comfs (^_^)** <img width="110" height="63" alt="image" src="https://github.com/user-attachments/assets/b29bc976-97ed-4316-bd00-b854536cf01f" />
 
@@ -110,8 +111,7 @@ P: s0ap3_**
 
  (wall of text again im so sorry 💔)
 
-****little dni/info?(more can be found on the strawpage above) people coming to harass me (ex friends or people veiwing who i sit by)****
- - **i am not a proshipper** in the way you think! i am simply just anti harassment i dont ship any illegal ships i have an outdated but still pretty good explenation in my abt me below this!!) 
+
  - **dni if you are friends of ex friends** unless your civil abt ts 💔 i genuinely dont want you guys coming at me because almost none of you know my story to be sending me threats pls
  - **my "dni"** - thought i may be a proshipper aka anti harassment i dont condone loli/other pedophilic ships, yet i will never harass anyone but just be causious because that stuff easily makes me upset/icked out , same with certain ships. Do not try and force me to like your ships i will get upset easily if you try to make me like a ship im clearly uncomfy with.
 please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious. if you KNOW my triggers please for the love of god dont push my buttons for the giggles its actually just so draining to see how much that happens.
