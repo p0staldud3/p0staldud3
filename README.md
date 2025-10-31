@@ -11,7 +11,7 @@
 <img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/12c8dcc9-b538-4e41-80d0-131f47c95053" />
 
 
-https://murd0cnc4las.straw.page/
+[https://murd0cnc4las.straw.page/](https://murd0cnc4las.straw.page)
 　　𓎢𓎡　　　***soap***　　☣︎　           　
      :*rowan*   / 
      *murdoc*   ᛝ
