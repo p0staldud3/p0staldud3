@@ -18,9 +18,10 @@
 
 
 bisexual / genderfluid / aroace
-◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧         
+◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧        
+*slow dance, clario*
 
-**my fp** : <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9f74cae0-a589-461e-90e9-02e2e5456bba" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a84779a9-8c77-465a-86aa-07f8a5578183" />        ๑    .࿔ ✈︎  
+**my fp** : <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9f74cae0-a589-461e-90e9-02e2e5456bba" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a84779a9-8c77-465a-86aa-07f8a5578183" />    ๑    .࿔ ✈︎  
          𓂃
          ﹑*ENFP*  ౨ৎ
 　   ⤿﹒bpd. did. npd/nspd ◡◡
