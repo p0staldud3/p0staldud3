@@ -20,6 +20,7 @@
 bisexual / genderfluid / aroace
 ◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧        
 *slow dance, clario*
+||*i dont date online anymore<3*
 
 **my fp** : <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9f74cae0-a589-461e-90e9-02e2e5456bba" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a84779a9-8c77-465a-86aa-07f8a5578183" />    ๑    .࿔ ✈︎  
          𓂃
@@ -38,7 +39,7 @@ bisexual / genderfluid / aroace
 
 *https://moreabtsoapy.straw.page/*
 
-![image](https://github.com/user-attachments/assets/56beee04-d4df-476e-ae48-6dc4f7f737a0) ![image](https://github.com/user-attachments/assets/55323953-6fc4-4474-8194-32007eb491b3) ![image](https://github.com/user-attachments/assets/dd94bd96-e1a4-48cb-a88d-16c388ca8304) ![image](https://github.com/user-attachments/assets/6be28319-b8c4-42c2-8556-6a2a388a0a0b) ![image](https://github.com/user-attachments/assets/c2eb3a62-01a4-4ed5-b18e-312e4a217dd0) ![image](https://github.com/user-attachments/assets/7f91ef91-39d6-4897-9057-379369c61af3) ![image](https://github.com/user-attachments/assets/8e8bc9a9-2529-4487-950c-95d016f8590e) ![image](https://github.com/user-attachments/assets/6d23f169-25ec-418f-956b-d6ecd1e6cc5c) ![image](https://github.com/user-attachments/assets/16ab4ed5-f7dd-4cc6-9607-75a388c0e6f3) ![image](https://github.com/user-attachments/assets/1d1e1b38-7814-4abc-8728-157074f73f8c)
+ ![image](https://github.com/user-attachments/assets/55323953-6fc4-4474-8194-32007eb491b3) ![image](https://github.com/user-attachments/assets/dd94bd96-e1a4-48cb-a88d-16c388ca8304) ![image](https://github.com/user-attachments/assets/6be28319-b8c4-42c2-8556-6a2a388a0a0b) ![image](https://github.com/user-attachments/assets/c2eb3a62-01a4-4ed5-b18e-312e4a217dd0) ![image](https://github.com/user-attachments/assets/7f91ef91-39d6-4897-9057-379369c61af3) ![image](https://github.com/user-attachments/assets/8e8bc9a9-2529-4487-950c-95d016f8590e) ![image](https://github.com/user-attachments/assets/6d23f169-25ec-418f-956b-d6ecd1e6cc5c) ![image](https://github.com/user-attachments/assets/16ab4ed5-f7dd-4cc6-9607-75a388c0e6f3) ![image](https://github.com/user-attachments/assets/1d1e1b38-7814-4abc-8728-157074f73f8c)
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d84355c4-c1f4-46f5-9cbb-fd030fe945f0" />
 
 
