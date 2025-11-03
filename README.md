@@ -4,7 +4,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![image](https://github.com/user-attachments/assets/b58f9752-8c8b-459d-87aa-a54154ac3563)
+![image](https://github.com/user-attachments/assets/867e2a2a-0091-4a7f-bbc4-ccb11a2e2c7d)
+
 
 
 
@@ -80,7 +81,7 @@ bisexual / genderfluid / aroace
 
 
 
-**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel and mha
+**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel, mha and scott pilgram
 
 ![image](https://github.com/user-attachments/assets/58eb5bc1-f082-4f84-bdfb-38804926736c)
 
