@@ -21,7 +21,8 @@
 bisexual / genderfluid / aroace
 ◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧        
 *slow dance, clario*
-||*talking to someone in the real world dont flirt w me pls <3*   ๑    .࿔ ✈︎  
+||
+*wait loredrop but i have a irl bf now GULLLPS 11/02/25 <3*   ๑    .࿔ ✈︎  
          𓂃
          ﹑*ENFP*  ౨ৎ
 　   ⤿﹒bpd. did. npd/nspd ◡◡
