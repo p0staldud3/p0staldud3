@@ -117,6 +117,8 @@ P: s0ap3_**
  - **my "dni"** - thought i may be a proshipper aka anti harassment i dont condone loli/other pedophilic ships, yet i will never harass anyone but just be causious because that stuff easily makes me upset/icked out , same with certain ships. Do not try and force me to like your ships i will get upset easily if you try to make me like a ship im clearly uncomfy with.
 please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious. if you KNOW my triggers please for the love of god dont push my buttons for the giggles its actually just so draining to see how much that happens.
   - **Abelists,bigots, racists, homophobics, transphobics** being nice and learning that life is not that deep is truly one of the best things to know. stop harassing people for who they are and let yourself live your life. dont concern and consume yourself in others own life.
+  - **small general boundaries** *i am in a relationship irl i dont really feel comfy with people flirting w me unless its an obvious joke.
+  - **dni** *and i mean **DNI** if you: joke about school shootings, grape, sudan, palestine, holocaust or other significant history events.*
 
 
     
