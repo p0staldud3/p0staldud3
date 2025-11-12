@@ -63,6 +63,7 @@ bisexual / genderfluid / aroace
 - eddie gluskin (outlast 1 whistleblower dlc)
 - seductive woman (ninah)
 - aizawa (mha)
+- mr boss
 
 **Fictkins/Comfs (^_^)** <img width="110" height="63" alt="image" src="https://github.com/user-attachments/assets/b29bc976-97ed-4316-bd00-b854536cf01f" />
 
@@ -77,6 +78,8 @@ bisexual / genderfluid / aroace
 - postal (if not obv)
 - jade (homestuck)
 - leano (beastars)
+- charlie (sf)
+- allan (sf)
 (still wip/ some id like to remain unlisted)
 ![image](https://github.com/user-attachments/assets/0d9958b1-f490-4ab1-837b-57d9ed326777)
 **i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.**
