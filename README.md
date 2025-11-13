@@ -86,7 +86,7 @@ bisexual / genderfluid / aroace
 
 
 
-**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel, mha and scott pilgram
+**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel, mha, scott pilgram, and hh (fandom dni💔)
 
 ![image](https://github.com/user-attachments/assets/58eb5bc1-f082-4f84-bdfb-38804926736c)
 
