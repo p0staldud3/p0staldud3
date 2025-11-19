@@ -4,7 +4,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![image](https://github.com/user-attachments/assets/59f11198-8694-4c8d-81ed-684b27535b60)
+![image](https://github.com/user-attachments/assets/43ff8a41-657e-46e9-bf52-5c77c9d5bf6e)
+
+
 
 
 
