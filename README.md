@@ -25,12 +25,15 @@ bisexual / genderfluid / aroace
 ◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧        
 *slow dance, clario*
 ||
-*wait loredrop but i have a irl bf now GULLLPS 11/02/25 <3*   ๑    .࿔ ✈︎  
+*i have a irl bf now GULLLPS 11/02/25 <3*   ๑    .࿔ ✈︎  
          𓂃
          ﹑*ENFP*  ౨ৎ
 　   ⤿﹒bpd. did. npd/nspd ◡◡
 　     schizophrenia. add + others im sure you dont need to know lmao
 
+![image](https://github.com/user-attachments/assets/f0832950-711b-472f-8366-39ecdcb38cb8)
+
+***MY BOUFRIEND*** *hi so i dont really know what to say but i love him alot heh...* 
 
 ***lightshipper*** & 
 ***yumeshipper/selfshipper***
