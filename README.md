@@ -79,12 +79,12 @@ bisexual / genderfluid / aroace
 **Fictkins/Comfs (^_^)** <img width="110" height="63" alt="image" src="https://github.com/user-attachments/assets/b29bc976-97ed-4316-bd00-b854536cf01f" />
 
 
--james (sh2)
 - murdoc (gorillaz)
 - hizashi/ presentmic (mha)
 - postal (if not obv)
 - jade (homestuck)
 - charlie (sf)
+- james (silenthill2)
 
 ![image](https://github.com/user-attachments/assets/0d9958b1-f490-4ab1-837b-57d9ed326777)
 **i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.**
