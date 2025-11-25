@@ -79,19 +79,13 @@ bisexual / genderfluid / aroace
 **Fictkins/Comfs (^_^)** <img width="110" height="63" alt="image" src="https://github.com/user-attachments/assets/b29bc976-97ed-4316-bd00-b854536cf01f" />
 
 
-
-
-
+-james (sh2)
 - murdoc (gorillaz)
 - hizashi/ presentmic (mha)
-- jacob alden (lurking for love)
-- Lee Holloway (secretary)
 - postal (if not obv)
 - jade (homestuck)
-- leano (beastars)
 - charlie (sf)
-- allan (sf)
-(still wip/ some id like to remain unlisted)
+
 ![image](https://github.com/user-attachments/assets/0d9958b1-f490-4ab1-837b-57d9ed326777)
 **i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.**
 
@@ -120,7 +114,7 @@ but wait...
 SOCIALS (no harassment !! )
 
 **R: u/_s0ap3
-D: p0stal.dud3
+D: p0stal.dud3 ❌
 P: s0ap3_** 
 
 ![image](https://github.com/user-attachments/assets/ecffeebc-c0eb-40c2-b718-41eebf1a26ce)
