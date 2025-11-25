@@ -19,7 +19,7 @@
 https://moreabtsoapy.straw.page
 
 　　𓎢𓎡　　　***soap***　　☣︎　           　
-     :*rowan*   / 
+     :*james*   / 
      *murdoc*   ᛝ
 
 
@@ -93,9 +93,11 @@ bisexual / genderfluid / aroace
 
 
 
-**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel, mha, scott pilgram, and hh (fandom dni💔)
+**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel, mha, scott pilgram, hh (fandom dni💔), silent hill2, and dbd.
 
-![image](https://github.com/user-attachments/assets/58eb5bc1-f082-4f84-bdfb-38804926736c)
+
+![image](https://github.com/user-attachments/assets/15b96340-0693-48fe-9c4e-1bef0a955adb)
+
 
 
 
@@ -131,6 +133,9 @@ please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers
   - **Abelists,bigots, racists, homophobics, transphobics** being nice and learning that life is not that deep is truly one of the best things to know. stop harassing people for who they are and let yourself live your life. dont concern and consume yourself in others own life.
   - **small general boundaries** *i am in a relationship irl i dont really feel comfy with people flirting w me unless its an obvious joke.
   - **dni** *and i mean **DNI** if you: joke about school shootings, grape, sudan, palestine, holocaust or other significant history events.*
+
+
+hi guys anyways im james sunderland 
 
 
     
