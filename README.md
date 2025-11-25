@@ -29,13 +29,15 @@ bisexual / genderfluid / aroace
 ||
 *i have a irl bf now GULLLPS 11/02/25 <3*   ๑    .࿔ ✈︎  
          𓂃
-         ﹑*ENFP*  ౨ৎ
+         ﹑*ENFP* ![image](https://github.com/user-attachments/assets/001a9564-5243-4e47-830e-5d706b4e3973)
+ ౨ৎ
 　   ⤿﹒bpd. did. npd/nspd ◡◡
 　     schizophrenia. add + others im sure you dont need to know lmao
 
 ![image](https://github.com/user-attachments/assets/f0832950-711b-472f-8366-39ecdcb38cb8)
 
-***MY BOUFRIEND*** *hi so i dont really know what to say but i love him alot heh...* 
+***MY BOUFRIEND*** *hi so i dont really know what to say but i love him alot heh...*  ![image](https://github.com/user-attachments/assets/ebfd53fc-8387-4590-a6ba-a1566c91e62a)
+
 
 ***lightshipper*** & 
 ***yumeshipper/selfshipper***
@@ -46,7 +48,8 @@ bisexual / genderfluid / aroace
 ****i recommend checking out my straw for more info abt me!! dont be afraid to leave a note in my ata or dm me on discord!! <3****
 
 
- ![image](https://github.com/user-attachments/assets/55323953-6fc4-4474-8194-32007eb491b3) ![image](https://github.com/user-attachments/assets/dd94bd96-e1a4-48cb-a88d-16c388ca8304) ![image](https://github.com/user-attachments/assets/6be28319-b8c4-42c2-8556-6a2a388a0a0b) ![image](https://github.com/user-attachments/assets/c2eb3a62-01a4-4ed5-b18e-312e4a217dd0) ![image](https://github.com/user-attachments/assets/7f91ef91-39d6-4897-9057-379369c61af3) ![image](https://github.com/user-attachments/assets/8e8bc9a9-2529-4487-950c-95d016f8590e) ![image](https://github.com/user-attachments/assets/6d23f169-25ec-418f-956b-d6ecd1e6cc5c) ![image](https://github.com/user-attachments/assets/16ab4ed5-f7dd-4cc6-9607-75a388c0e6f3) ![image](https://github.com/user-attachments/assets/1d1e1b38-7814-4abc-8728-157074f73f8c)
+ ![image](https://github.com/user-attachments/assets/55323953-6fc4-4474-8194-32007eb491b3) ![image](https://github.com/user-attachments/assets/dd94bd96-e1a4-48cb-a88d-16c388ca8304) ![image](https://github.com/user-attachments/assets/6be28319-b8c4-42c2-8556-6a2a388a0a0b) ![image](https://github.com/user-attachments/assets/c2eb3a62-01a4-4ed5-b18e-312e4a217dd0) ![image](https://github.com/user-attachments/assets/7f91ef91-39d6-4897-9057-379369c61af3) ![image](https://github.com/user-attachments/assets/8e8bc9a9-2529-4487-950c-95d016f8590e) ![image](https://github.com/user-attachments/assets/6d23f169-25ec-418f-956b-d6ecd1e6cc5c) ![image](https://github.com/user-attachments/assets/16ab4ed5-f7dd-4cc6-9607-75a388c0e6f3) ![image](https://github.com/user-attachments/assets/1d1e1b38-7814-4abc-8728-157074f73f8c) ![image](https://github.com/user-attachments/assets/b1b5467d-3855-49a3-8515-4171a2051c1d) ![image](https://github.com/user-attachments/assets/60f2b2f8-9d04-4e0f-bcfd-cecf3c3fb304) ![image](https://github.com/user-attachments/assets/a005a57c-80b9-4588-aaad-c7517a5a307a) ![image](https://github.com/user-attachments/assets/62307162-8036-4f8c-8b36-628fc94757aa) ![image](https://github.com/user-attachments/assets/1dcf5cf7-1a30-42d7-83f0-55cfebe11a35)
+
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d84355c4-c1f4-46f5-9cbb-fd030fe945f0" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9f74cae0-a589-461e-90e9-02e2e5456bba" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a84779a9-8c77-465a-86aa-07f8a5578183" /> ![image](https://github.com/user-attachments/assets/67169f0b-e906-46dc-bbbd-d8533a21c5f0) ![image](https://github.com/user-attachments/assets/e96f4e98-f1fa-43fd-9eb6-a0f59b5a80b5) ![image](https://github.com/user-attachments/assets/c83c9419-e71f-44ab-911c-62a3627419e6)
 
 
