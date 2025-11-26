@@ -62,20 +62,6 @@ bisexual / genderfluid / aroace
  *(more to add)*
 
 
-
-
-**yumes (灬º‿º灬)♡**
-- bob velseb ( my first true love/silly)
-- strade (ykmet/btd) 
-- josh levy (eltingville)
-- val (outlast 2)
-- The pale man/intruder (NIANH) 
--  celia (tpof)
-- eddie gluskin (outlast 1 whistleblower dlc)
-- seductive woman (ninah)
-- aizawa (mha)
-- mr boss
-
 **Fictkins/Comfs (^_^)** <img width="110" height="63" alt="image" src="https://github.com/user-attachments/assets/b29bc976-97ed-4316-bd00-b854536cf01f" />
 
 
@@ -87,7 +73,6 @@ bisexual / genderfluid / aroace
 - james (silenthill2)
 
 ![image](https://github.com/user-attachments/assets/0d9958b1-f490-4ab1-837b-57d9ed326777)
-**i dont care if youre a double heh infact its better... more love to OUR yes me and yous husbands and/or wifes.**
 
 
 
@@ -102,20 +87,13 @@ bisexual / genderfluid / aroace
 
 ![image](https://github.com/user-attachments/assets/ecffeebc-c0eb-40c2-b718-41eebf1a26ce)
 
+SOCIALS (no harassment )
+- 
+ **R: u/_s0ap3**
 
--
-anyways sorry for the wall of text here lovelys!! i hope you all are having a wonderful day!! <3
+**D: p0stal.dud3** ❌
 
-but wait...
-...are you alone?
-![image](https://github.com/user-attachments/assets/8ba22ac3-b869-4c7e-aee8-3ef3f40fcfdb)
-
-
-SOCIALS (no harassment !! )
-
-**R: u/_s0ap3
-D: p0stal.dud3 ❌
-P: s0ap3_** 
+ **P: s0ap3_** 
 
 ![image](https://github.com/user-attachments/assets/ecffeebc-c0eb-40c2-b718-41eebf1a26ce)
 
