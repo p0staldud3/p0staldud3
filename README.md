@@ -26,7 +26,7 @@ bisexual / genderfluid / aroace
 ◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧        
 *slow dance, clario*
 ||
-*i have a irl bf now GULLLPS 11/02/25 <3*   ๑    .࿔ ✈︎  
+*11/02/25 <3*   ๑    .࿔ ✈︎  
     𐂯 .ᐟ⸝⸝
       𓂃 ﹑*ENFP* ![image](https://github.com/user-attachments/assets/001a9564-5243-4e47-830e-5d706b4e3973)
  ౨ৎ
@@ -37,7 +37,7 @@ bisexual / genderfluid / aroace
 
 
 ***MY BOUFRIEND*** -
-*hi so i dont really know what to say but i love him alot heh...*  ![image](https://github.com/user-attachments/assets/ebfd53fc-8387-4590-a6ba-a1566c91e62a)
+*hi so i dont really know what to say but i love him alot heh... hes the coolest boy on planet earth*  ![image](https://github.com/user-attachments/assets/ebfd53fc-8387-4590-a6ba-a1566c91e62a)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ***lightshipper*** & 
