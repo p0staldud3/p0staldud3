@@ -16,7 +16,8 @@
 
 
 
-<img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/12c8dcc9-b538-4e41-80d0-131f47c95053" />
+![image](https://github.com/user-attachments/assets/a9a8fa3c-c6fc-4544-bdbf-554799dfd52c)
+
 
 https://moreabtsoapy.straw.page
 
@@ -123,5 +124,6 @@ please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers
     
 ![image](https://github.com/user-attachments/assets/f6d88551-1512-4cf7-a576-712122025c34)
 
-<img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/12c8dcc9-b538-4e41-80d0-131f47c95053" />
+![image](https://github.com/user-attachments/assets/c152aebe-643e-48c9-aab4-7fb55ae57266)
+
 
