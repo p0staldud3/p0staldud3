@@ -3,6 +3,7 @@
 
 
 
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 ![image](https://github.com/user-attachments/assets/28d7764d-af0e-422d-9980-cfb33a502baa)
@@ -20,7 +21,7 @@
 ![image](https://github.com/user-attachments/assets/a9a8fa3c-c6fc-4544-bdbf-554799dfd52c)
 
 
-https://moreabtsoapy.straw.page
+https://moreabtsoapy.straw.page !
 
 𓎢𓎡　　　***soap*** ☣︎ :*wesker*/ 
      *murdoc*   ᛝ
