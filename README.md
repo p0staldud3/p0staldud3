@@ -4,7 +4,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![image](https://github.com/user-attachments/assets/56c564d1-57ea-4447-b073-29554a0b98c3)
+![image](https://github.com/user-attachments/assets/28d7764d-af0e-422d-9980-cfb33a502baa)
+
+
 
 
 
@@ -18,7 +20,7 @@
 
 https://moreabtsoapy.straw.page
 
-𓎢𓎡　　　***soap*** ☣︎ :*james*/ 
+𓎢𓎡　　　***soap*** ☣︎ :*wesker*/ 
      *murdoc*   ᛝ
 
 
@@ -71,14 +73,14 @@ bisexual / genderfluid / aroace
 - hizashi/ presentmic (mha)
 - postal (if not obv)
 - jade (homestuck)
-- charlie (sf)
+- wesker (resident evil)
 - james (silenthill2)
 
-![image](https://github.com/user-attachments/assets/0d9958b1-f490-4ab1-837b-57d9ed326777)
 
 
 
-**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel, mha, scott pilgram, hh (fandom dni💔), silent hill2, and dbd.
+
+**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel, mha, scott pilgram, hh (fandom dni💔), silent hill2, re5 + other games and dbd.
 
 
 ![image](https://github.com/user-attachments/assets/15b96340-0693-48fe-9c4e-1bef0a955adb)
@@ -112,9 +114,10 @@ please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers
   - **small general boundaries** *i am in a relationship irl i dont really feel comfy with people flirting w me unless its an obvious joke.
   - **dni** *and i mean **DNI** if you: joke about school shootings, grape, sudan, palestine, holocaust or other significant history events.*
 
-![image](https://github.com/user-attachments/assets/dbc16ba3-7efa-49f0-90d1-7b2a492b4c57)
+![image](https://github.com/user-attachments/assets/3c859ada-10e5-4568-b24d-8e5666c73a26)
 
-hi guys anyways im james sunderland 
+
+« seven minutes, seven minutes is all i have to play with you.
 
 
     
