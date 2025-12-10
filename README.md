@@ -1,5 +1,6 @@
 ## 
-![](https://komarev.com/ghpvc/?username=p0staldud3-username&label=stalkers+count) 👀 
+![](https://komarev.com/ghpvc/?username=p0staldud3-username&label=stalkers+count) 👀
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
@@ -44,7 +45,8 @@ bisexual / genderfluid / aroace
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ***lightshipper*** & 
-***yumeshipper/selfshipper***
+***yumeshipper/selfshipper*** 
+
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
@@ -78,10 +80,12 @@ bisexual / genderfluid / aroace
 - james (silenthill2)
 
 
+![image](https://github.com/user-attachments/assets/59925b62-69a8-4994-a9a8-d920d9e134cc)
 
 
 
-**current hyperfixation:** no im not a human, gorillaz, the eltingville club,haunted hotel, mha, scott pilgram, hh (fandom dni💔), silent hill2, re5 + other games and dbd.
+
+**current hyperfixation:** <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b110872c-30cc-49a9-8a7e-5c329fcace8b" />no im not a human, gorillaz, the eltingville club,haunted hotel, mha, scott pilgram, hh (fandom dni💔), silent hill2, re5 + other games and dbd.
 
 
 ![image](https://github.com/user-attachments/assets/15b96340-0693-48fe-9c4e-1bef0a955adb)
@@ -104,6 +108,7 @@ SOCIALS (no harassment )
 
 
 ⚠️DNI BELOW!! 
+
 
  (wall of text again im so sorry 💔)
 
