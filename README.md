@@ -89,7 +89,7 @@ bisexual / genderfluid / aroace
 
 **current hyperfixation:** <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b110872c-30cc-49a9-8a7e-5c329fcace8b" /> 
 ---------------
-no im not a human, gorillaz, the eltingville club,haunted hotel, mha, scott pilgram, hh (fandom dni💔), silent hill2, re5 + re8 and dbd || 
+no im not a human, gorillaz, the eltingville club, mha, scott pilgram, hh (fandom dni💔), silent hill2, re5 + re8 and dbd || 
 
 
 ![image](https://github.com/user-attachments/assets/15b96340-0693-48fe-9c4e-1bef0a955adb)
@@ -128,6 +128,8 @@ please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers
 
 
 « seven minutes, seven minutes is all i have to play with you.
+
+
 
 
     
