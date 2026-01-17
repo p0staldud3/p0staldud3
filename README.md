@@ -23,11 +23,11 @@
 
 https://moreabtsoapy.straw.page !
 
-𓎢𓎡　　　***soap*** ☣︎ :*wesker*/ 
+𓎢𓎡　　　***soap*** ☣︎ :*frankie*/ 
      *murdoc*   ᛝ
 
 
-bisexual / genderfluid / aroace
+bisexual / genderfluid / asexual
 ◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧        
 *slow dance, clario*
 ||
@@ -39,10 +39,12 @@ bisexual / genderfluid / aroace
 　     schizophrenia. add 
 
 ![image](https://github.com/user-attachments/assets/f0832950-711b-472f-8366-39ecdcb38cb8)
-
+heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 
 ***MY BOUFRIEND*** -
 *hi so i dont really know what to say but i love him alot heh... hes the coolest boy on planet earth*  ![image](https://github.com/user-attachments/assets/ebfd53fc-8387-4590-a6ba-a1566c91e62a)
+
+heh i love my sister bugz
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ***lightshipper*** & 
@@ -79,7 +81,8 @@ bisexual / genderfluid / aroace
 - jade (homestuck)
 - wesker (resident evil)
 - lawernce oleander (btd2)
-
+-deadpool
+- trevor (gta4-5)
 
 
 ![image](https://github.com/user-attachments/assets/59925b62-69a8-4994-a9a8-d920d9e134cc)
@@ -89,7 +92,7 @@ bisexual / genderfluid / aroace
 
 **current hyperfixation:** <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b110872c-30cc-49a9-8a7e-5c329fcace8b" /> 
 ---------------
-no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, hh (fandom dni💔), silent hill2, re5 + re8 and dbd || 
+no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, silent hill2, re5 + re8, dbd, marvel, gta, rdr2, spookymonth,outlast  || 
 
 
 ![image](https://github.com/user-attachments/assets/15b96340-0693-48fe-9c4e-1bef0a955adb)
@@ -104,7 +107,7 @@ SOCIALS (no harassment )
 - 
  **R: u/_s0ap3**
 
-**D: p0stal.dud3** ❌
+**D: bananaflavoredsoap
 
  **P: s0ap3_** 
 
@@ -117,17 +120,17 @@ SOCIALS (no harassment )
  (wall of text again im so sorry 💔)
 
 
- - **dni if you are friends of ex friends** unless your civil abt ts 💔 i genuinely dont want you guys coming at me because almost none of you know my story to be sending me threats pls
+ - **dni if you are friends of ex friends** 
  - **my "dni"** - though i may be a anti harassment i dont condone loli/other pedophilic ships, yet i will never harass anyone but just be causious because that stuff easily makes me upset/icked out , same with certain ships. Do not try and force me to like your ships i will get upset easily if you try to make me like a ship im clearly uncomfy with.
-please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious. if you KNOW my triggers please for the love of god dont push my buttons for the giggles its actually just so draining to see how much that happens.
+please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious.
   - **Abelists,bigots, racists, homophobics, transphobics** being nice and learning that life is not that deep is truly one of the best things to know. stop harassing people for who they are and let yourself live your life. dont concern and consume yourself in others own life.
   - **small general boundaries** *i am in a relationship irl i dont really feel comfy with people flirting w me unless its an obvious joke.
   - **dni** *and i mean **DNI** if you: joke about school shootings, grape, sudan, palestine, holocaust or other significant history events.*
-
+- in all seriousness im a pretty chill person id say so yeah just dont be a dick 😼
 ![image](https://github.com/user-attachments/assets/3c859ada-10e5-4568-b24d-8e5666c73a26)
 
 
-« seven minutes, seven minutes is all i have to play with you.
+
 
 
 
