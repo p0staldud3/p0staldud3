@@ -81,7 +81,7 @@ heh i love my sister bugz
 - jade (homestuck)
 - wesker (resident evil)
 - lawernce oleander (btd2)
--deadpool
+- deadpool
 - trevor (gta4-5)
 
 
