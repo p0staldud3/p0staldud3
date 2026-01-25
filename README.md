@@ -5,8 +5,9 @@
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+![image](https://github.com/user-attachments/assets/9b75e7e4-15d0-46b6-8ba5-d15c68e82cb5)
 
-![image](https://github.com/user-attachments/assets/28d7764d-af0e-422d-9980-cfb33a502baa)
+
 
 
 
@@ -39,7 +40,8 @@ bisexual / genderfluid / asexual
 　     schizophrenia. add 
 
 ****"its like you never- had wings"****-*change (in the house of flies), deftone*
-![image](https://github.com/user-attachments/assets/f0832950-711b-472f-8366-39ecdcb38cb8)
+![image](https://github.com/user-attachments/assets/c5d2252e-1581-48f9-b81a-d3e7139a5644)
+
 heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 
 ***MY BOUFRIEND*** -
@@ -93,7 +95,7 @@ heh i love my sister bugz
 
 **current hyperfixation:** <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b110872c-30cc-49a9-8a7e-5c329fcace8b" /> 
 ---------------
-no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, silent hill2, re5 + re8, dbd, marvel, gta, rdr2, spookymonth,outlast  || 
+no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, silent hill2, re5 + re8, dbd, marvel, gta, rdr2, spookymonth,outlast, on the western front, WWI & WWII, g&b || 
 
 
 ![image](https://github.com/user-attachments/assets/15b96340-0693-48fe-9c4e-1bef0a955adb)
