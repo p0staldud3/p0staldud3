@@ -38,6 +38,7 @@ bisexual / genderfluid / asexual
 　   ⤿﹒bpd. did. npd/nspd ◡◡
 　     schizophrenia. add 
 
+****"its like you never- had wings"****-*change (in the house of flies), deftone*
 ![image](https://github.com/user-attachments/assets/f0832950-711b-472f-8366-39ecdcb38cb8)
 heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 
@@ -126,7 +127,8 @@ please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers
   - **Abelists,bigots, racists, homophobics, transphobics** being nice and learning that life is not that deep is truly one of the best things to know. stop harassing people for who they are and let yourself live your life. dont concern and consume yourself in others own life.
   - **small general boundaries** *i am in a relationship irl i dont really feel comfy with people flirting w me unless its an obvious joke.
   - **dni** *and i mean **DNI** if you: joke about school shootings, grape, sudan, palestine, holocaust or other significant history events.*
-- in all seriousness im a pretty chill person id say so yeah just dont be a dick 😼
+  - **if you support ice and trump** i genuienly hate you. im so tired of people defending him and his invalid fucking neonazi crew, if you support or like him and his plans in any way i have no respect for you. 
+- in all seriousness im a pretty chill person id say so yeah just dont be a dick 
 ![image](https://github.com/user-attachments/assets/3c859ada-10e5-4568-b24d-8e5666c73a26)
 
 
