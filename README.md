@@ -23,6 +23,7 @@
 
 
 https://moreabtsoapy.straw.page !
+**^** *old new one coming soon*
 
 𓎢𓎡　　　***soap*** ☣︎ :*frankie*/ 
      *murdoc*   ᛝ
@@ -45,9 +46,9 @@ bisexual / genderfluid / asexual
 heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 
 ***MY BOUFRIEND*** -
-*hi so i dont really know what to say but i love him alot heh... hes the coolest boy on planet earth*  ![image](https://github.com/user-attachments/assets/ebfd53fc-8387-4590-a6ba-a1566c91e62a)
+*hi so i dont really know what to say but i love him alot heh... hes the coolest boy on planet earth and my future husband<3*  ![image](https://github.com/user-attachments/assets/ebfd53fc-8387-4590-a6ba-a1566c91e62a)
 
-heh i love my sister bugz
+heh i love my sister bugz dude ur so cool and youve been through it w me
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ***lightshipper*** & 
@@ -56,7 +57,7 @@ heh i love my sister bugz
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-****i recommend checking out my straw for more info abt me!! dont be afraid to leave a note in my ata or dm me on discord!! <3****
+****i recommend checking out my straw for more info abt me!! dont be afraid to leave a note in my ata or dm me on discord!! <3**** *WIP*
 
 <img width="375" height="36" alt="image" src="https://github.com/user-attachments/assets/12c8dcc9-b538-4e41-80d0-131f47c95053" /> 
 
