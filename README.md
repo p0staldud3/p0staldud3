@@ -21,9 +21,8 @@
 
 ![image](https://github.com/user-attachments/assets/a9a8fa3c-c6fc-4544-bdbf-554799dfd52c)
 
-
-https://moreabtsoapy.straw.page !
-**^** *old new one coming soon*
+(https://admiremybooty.straw.page) 
+^ new straw page be nice to her
 
 𓎢𓎡　　　***soap*** ☣︎ :*frankie*/ 
      *murdoc*   ᛝ
