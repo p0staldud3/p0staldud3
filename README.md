@@ -87,6 +87,7 @@ heh i love my sister bugz dude ur so cool and youve been through it w me
 - lawernce oleander (btd2)
 - deadpool
 - trevor (gta4-5)
+- artificer (RAINWORLD)
 
 
 ![image](https://github.com/user-attachments/assets/59925b62-69a8-4994-a9a8-d920d9e134cc)
@@ -96,7 +97,7 @@ heh i love my sister bugz dude ur so cool and youve been through it w me
 
 **current hyperfixation:** <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b110872c-30cc-49a9-8a7e-5c329fcace8b" /> 
 ---------------
-no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, silent hill2, re5 + re8, dbd, marvel, gta, rdr2, spookymonth,outlast, on the western front, WWI & WWII, g&b || 
+no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, silent hill2, re5 + re8, dbd, marvel, gta, rdr2, spookymonth,outlast, on the western front, WWI & WWII, g&b, rw again || 
 
 
 ![image](https://github.com/user-attachments/assets/15b96340-0693-48fe-9c4e-1bef0a955adb)
