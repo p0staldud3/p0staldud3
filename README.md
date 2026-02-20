@@ -28,7 +28,7 @@
      *murdoc*   ᛝ
 
 
-bisexual / genderfluid / asexual
+bisexual / genderfluid / bfsexual🥹
 ◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧        
 *slow dance, clario*
 ||
