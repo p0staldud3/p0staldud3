@@ -47,7 +47,17 @@ heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 ***MY BOUFRIEND*** -
 *hi so i dont really know what to say but i love him alot heh... hes the coolest boy on planet earth and my future husband<3*  ![image](https://github.com/user-attachments/assets/ebfd53fc-8387-4590-a6ba-a1566c91e62a)
 
-heh i love my sister bugz dude ur so cool and youve been through it w me
+**my close cool ppl ! (no order i love you all sm/p)** 
+
+- bugz my super loving sister who hates me
+- erin the FAT CHUD
+- redacted/Tombz and their partner! 
+- lucio, bro is SO fun to talk to how can one be this epic bro what
+- cucks united gc (irls and very close online friends)
+- MY PAPA, seen all my phases and remains one of my very good friends and role models
+- ray and mark my outlast buds
+- hazy, probably my longest online friend, hes the fucking goat dude
+- heh my bf...again... ima touch him
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ***lightshipper*** & 
