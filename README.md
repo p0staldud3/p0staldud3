@@ -5,9 +5,9 @@
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31txs26qxzmv5k2hq2exzfeknuoe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=bdc100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-![image](https://github.com/user-attachments/assets/9b75e7e4-15d0-46b6-8ba5-d15c68e82cb5)
+![image](https://github.com/user-attachments/assets/2b0a2bb0-1b1c-4a51-86fa-a798e67b8dc3)
 
-
+ 
 
 
 
@@ -109,7 +109,7 @@ heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 
 **current hyperfixation:** <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b110872c-30cc-49a9-8a7e-5c329fcace8b" /> 
 ---------------
-no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, silent hill2, re5 + re8, dbd, marvel, gta, rdr2, spookymonth,outlast, on the western front, WWI & WWII, g&b, rw again || 
+no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, silent hill2, re5 + re8+ re9, dbd, marvel, gta, rdr2, spookymonth,outlast, on the western front, WWI & WWII, g&b, rw again || 
 
 
 ![image](https://github.com/user-attachments/assets/15b96340-0693-48fe-9c4e-1bef0a955adb)
