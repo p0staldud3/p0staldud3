@@ -47,6 +47,9 @@ heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 ***MY BOUFRIEND*** -
 *hi so i dont really know what to say but i love him alot heh... hes the coolest boy on planet earth and my future husband<3*  ![image](https://github.com/user-attachments/assets/ebfd53fc-8387-4590-a6ba-a1566c91e62a)
 
+**Victor Gideons WIFE 🥹** hes so cute omg i wonder if he likes faggots
+-(sharing btw <3)
+
 **my close cool ppl ! (no order i love you all sm/p)** 
 
 - bugz my super loving sister who hates me
