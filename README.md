@@ -28,7 +28,7 @@
      *murdoc*   ᛝ
 
 
-bisexual / genderfluid / bfsexual🥹
+bisexual / genderfluid 🥹
 ◠◠   ![image](https://github.com/user-attachments/assets/409803d2-3c1c-4c94-850e-3bba7ab25b62)      ୨୧        
 *slow dance, clario*
 ||
@@ -44,8 +44,6 @@ bisexual / genderfluid / bfsexual🥹
 
 heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 
-***MY BOUFRIEND*** -
-*hi so i dont really know what to say but i love him alot heh... hes the coolest boy on planet earth and my future husband<3*  ![image](https://github.com/user-attachments/assets/ebfd53fc-8387-4590-a6ba-a1566c91e62a)
 
 **Victor Gideons WIFE 🥹** hes so cute omg i wonder if he likes faggots
 -(sharing btw <3)
@@ -60,7 +58,8 @@ heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 - MY PAPA, seen all my phases and remains one of my very good friends and role models
 - ray and mark my outlast buds
 - hazy, probably my longest online friend, hes the fucking goat dude
-- heh my bf...again... ima touch him
+- Vinny!! ive missed u lots man, ily/p
+- Darkstalker, my twin <3
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ***lightshipper*** & 
@@ -109,7 +108,7 @@ heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 
 **current hyperfixation:** <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b110872c-30cc-49a9-8a7e-5c329fcace8b" /> 
 ---------------
-no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, silent hill2, re5 + re8+ re9, dbd, marvel, gta, rdr2, spookymonth,outlast, on the western front, WWI & WWII, g&b, rw again || 
+no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram, silent hill2, re5 + re8+ re9, dbd, marvel, gta, rdr2, spookymonth,outlast, on the western front, WWI & WWII, g&b, rw again, the walten files, cyberpunk, ftut, iron lung, project hail mary, the backrooms || 
 
 
 ![image](https://github.com/user-attachments/assets/15b96340-0693-48fe-9c4e-1bef0a955adb)
@@ -138,13 +137,12 @@ SOCIALS (no harassment )
 
 
  - **dni if you are friends of ex friends** 
- - **my "dni"** - though i may be a anti harassment i dont condone loli/other pedophilic ships, yet i will never harass anyone but just be causious because that stuff easily makes me upset/icked out , same with certain ships. Do not try and force me to like your ships i will get upset easily if you try to make me like a ship im clearly uncomfy with.
-please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma, if you do yet again i wont attack you for that but please dni/stay causious.
+ - **my "dni"** -  i dont condone loli/other pedophilic ships, yet i will never harass anyone but just be causious because that stuff easily makes me upset/icked out , same with certain ships. Do not try and force me to like your ships i will get upset easily if you try to make me like a ship im clearly uncomfy with.
+please dni if you are any of the following, tcc, zoos, pedo (map, loli endulgers, any of that,) people who darkship with no trauma.
   - **Abelists,bigots, racists, homophobics, transphobics** being nice and learning that life is not that deep is truly one of the best things to know. stop harassing people for who they are and let yourself live your life. dont concern and consume yourself in others own life.
-  - **small general boundaries** *i am in a relationship irl i dont really feel comfy with people flirting w me unless its an obvious joke.
-  - **dni** *and i mean **DNI** if you: joke about school shootings, grape, sudan, palestine, holocaust or other significant history events.*
+  - **dni** *and i mean **DNI** if you: joke about school shootings, rape, sudan, palestine, holocaust or other significant history events.*
   - **if you support ice and trump** i genuienly hate you. im so tired of people defending him and his invalid fucking neonazi crew, if you support or like him and his plans in any way i have no respect for you. 
-- in all seriousness im a pretty chill person id say so yeah just dont be a dick 
+- in all seriousness im a pretty chill person id say so yeah just dont be a dick.
 ![image](https://github.com/user-attachments/assets/3c859ada-10e5-4568-b24d-8e5666c73a26)
 
 
