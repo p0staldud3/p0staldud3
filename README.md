@@ -45,14 +45,13 @@ bisexual / genderfluid 🥹
 heh uhh id perfer to go by soap but closer friends can call me frankie 😛
 
 
-**Victor Gideons WIFE 🥹** hes so cute omg i wonder if he likes faggots
--(sharing btw <3)
+**Victor Gideons WIFE 🥹** i love him so much (sharing ofc <3 
+
 
 **my close cool ppl ! (no order i love you all sm/p)** 
 
 - bugz my super loving sister who hates me
 - erin the FAT CHUD
-- redacted/Tombz and their partner! 
 - lucio, bro is SO fun to talk to how can one be this epic bro what
 - cucks united gc (irls and very close online friends)
 - MY PAPA, seen all my phases and remains one of my very good friends and role models
@@ -121,11 +120,11 @@ no im not a human, gorillaz, the eltingville club, btd/ykmet, mha, scott pilgram
 
 SOCIALS (no harassment )
 - 
- **R: u/_s0ap3**
+ **Reddit: u/_s0ap3**
 
 **D: bananaflavoredsoap
 
- **P: s0ap3_** 
+ **Pin: s0ap3_** 
 
 ![image](https://github.com/user-attachments/assets/ecffeebc-c0eb-40c2-b718-41eebf1a26ce)
 
